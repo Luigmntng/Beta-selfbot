@@ -56,9 +56,9 @@
 # THANKS TO 🎆
 • [`Baileys`](https://github.com/adiwajshing/Baileys)
 
-• [`Hexagonz`](https://wa.me/6289505165400)
+• [`AlyaXzy`](https://wa.me/6289505165400)
 
-• [`Arsky`](https://wa.me/6282221792667)
+• [`BOTCAH™`](https://wa.me/6282221792667)
 
 # Hargai Kami Dengan Menambahkan Kredit ( Wm ) 
 
